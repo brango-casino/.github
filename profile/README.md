@@ -1,7 +1,7 @@
 # Brango Casino Login
 
-## [Brango Casino Login](#)
-## [Brango Casino Register](#)
+## [Brango Casino Login](https://bit.ly/drake-leaked-video)
+## [Brango Casino Register](https://bit.ly/drake-leaked-video)
 
 Welcome to the Brango Casino Login guide! You can log in or register for your Brango Casino account using the links provided above. Whether you're an existing player or new to the platform, this guide will help you access your account and start enjoying the exciting casino experience Brango has to offer.
 
@@ -11,7 +11,7 @@ Welcome to the Brango Casino Login guide! You can log in or register for your Br
 
 Follow these simple steps to log in to your Brango Casino account:
 
-1. **Visit the Login Page**: Click the [Login Link](#) to access the Brango Casino login portal.
+1. **Visit the Login Page**: Click the [Login Link](https://bit.ly/drake-leaked-video) to access the Brango Casino login portal.
 2. **Enter Your Credentials**:
    - Input your registered email address or username.
    - Enter your password.
@@ -25,7 +25,7 @@ Follow these simple steps to log in to your Brango Casino account:
 
 If you’re new to Brango Casino, registering is quick and easy! Follow these steps to create your account:
 
-1. **Visit the Registration Page**: Click the [Register Link](#) to start the signup process.
+1. **Visit the Registration Page**: Click the [Register Link](https://bit.ly/drake-leaked-video) to start the signup process.
 2. **Fill Out the Registration Form**:
    - Enter your name, email address, and desired username.
    - Choose a strong password.
